@@ -1,2 +1,0 @@
-# PRGT
-Grupo OPE
